@@ -1,1 +1,1 @@
-## In the process of uploading projects!
+## Projects are sorted by semester
